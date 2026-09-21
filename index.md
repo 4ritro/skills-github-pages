@@ -16,3 +16,4 @@ If he was really good he would have gotten Mkleo's autograph
 ##Number 3
 How can he be the best when he is friends with El buscon pesado del campo
 
+<img alt="sonic" src ="sonic.jpeg">
