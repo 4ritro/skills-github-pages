@@ -1,7 +1,7 @@
 ---
-title: Welcome to my blog!
+title: Top 3 reason Llisos is poo at SSBU!
 ---
-# Top 5 reason Llisos is poo at SSBU
+
 
 ##Number 1
 He mains Pyra and mythra
