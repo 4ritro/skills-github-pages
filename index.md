@@ -1,5 +1,5 @@
 ---
-title: Top 3 reason Llisos is poo at SSBU!
+title: Top 3 reason WaziTaco is poo at SSBU!
 ---
 
 Number 1
